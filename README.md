@@ -1,9 +1,8 @@
 # 汤姆影院 最新地址发布 
 ## 导 航 永 久 域 名HttpS://22av.tv
-## ⭐️ 👉 地址一 ：HttpS://www.tom845.com
-## ⭐️ 👉 地址二 ：HttpS://www.tom847.com
-## ⭐️ 👉 地址三 ：HttpS://www.tom848.com
+## ⭐️ 👉 访问地址 ：HttpS://www.tom415.com
 ## ⭐️ 👉 备用导航 ：HttpS://33AV.TV
+## ⭐️ 👉 备用导航 ：HttpS://55AV.TV
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
 ### 📧 邮箱联系方式: avtomdizhi@gmail.com （发送任意内容获取最新地址）
