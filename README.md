@@ -1,5 +1,5 @@
 # 汤姆影院 最新地址发布 
-## 导 航 永 久 域 名HttpS://22av.tv
+## 导 航 永 久 域 名HttpS://33av.tv
 ## ⭐️ 👉 访问地址 ：https://tom177.com
 ## ⭐️ 👉 备用导航 ：HttpS://33AV.TV
 ## ⭐️ 👉 备用导航 ：HttpS://55AV.TV
